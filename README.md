@@ -1,5 +1,9 @@
 # Why Are Domains the Next Big Investment?
 
+<div class="image-container">
+    <img src="https://github.com/Avamichelle/Why-Are-Domains-the-Next-Big-Investment-/blob/main/Add%20a%20heading%20(8).png" alt="Are Metaverse Domains A Good Investment Source">
+</div>
+
 The digital world is constantly evolving, and with it, the opportunities for savvy investors to capitalize on new trends. One of the latest and most promising trends is the emergence of metaverse domains. Just as traditional domain names like .com and .net were once seen as prime digital real estate, metaverse domains are now becoming the next big investment. Here’s why investing in metaverse domains could be a game-changer for your portfolio.
 
 ## The Rise of the Metaverse
